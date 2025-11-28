@@ -2,6 +2,7 @@
 title: "Publications"
 ---
 
+
 ### I Knew Parkinson's Disease Would Change Our Lives But It Was Harder Than I Expected
 [The Globe & Mail First Person September 25, 2025](https://www.theglobeandmail.com/gift/1c2d8aa22e9bc917e990aa6f7c16c36010d4c9eda5bf39a5e91e6d80741fef70/7RPYFMEDKJDZBLL4XJ57MUU5I4/)
 
@@ -9,7 +10,9 @@ title: "Publications"
 
 ---
 ### Six-word story
-[THe New Quarterly August 2024](https://tnq.ca/on-play-stories-from-the-tnq-community/?mc_cid=aaad03e881&mc_eid=5b2053841d)
+[The New Quarterly August 2024](https://tnq.ca/on-play-stories-from-the-tnq-community/?mc_cid=aaad03e881&mc_eid=5b2053841d)
+
+“Torquing spine’s tough spirit transcends scoliosis.”
 
 ---
 ### Move it or Lose it
