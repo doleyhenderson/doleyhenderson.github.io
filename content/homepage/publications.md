@@ -10,6 +10,7 @@ My writing is published in Canadian and U.S. literary journals and anthologies, 
 ---
 
 ### Oyibo
+[Lucas Aykroyd website]
 (https://www.lucasaykroyd.com/2026-irene-adler-prize)
 (https://www.einpresswire.com/article/925837295/2026-irene-adler-prize-awarded-to-doley-henderson)
 
