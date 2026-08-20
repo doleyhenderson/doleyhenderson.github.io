@@ -3,7 +3,8 @@ title: "Publications"
 ---
 
 ### Oyibo
-[lucasaykroyd.com August 4, 2026](https://www.lucasaykroyd.com/2026-irene-adler-prize)
+[2026 Irene Adler Prize August 4, 2026](https://www.lucasaykroyd.com/2026-irene-adler-prize)
+[Press Release August 4, 2026](https://www.einpresswire.com/article/925837295/2026-irene-adler-prize-awarded-to-doley-henderson)
 
 "The spicy obe stew is sumptuous, the juju music and palm wine are bubbly, and the talking drums are heart-throbbing."
 
