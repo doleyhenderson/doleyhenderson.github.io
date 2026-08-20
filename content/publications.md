@@ -2,7 +2,12 @@
 title: "Publications"
 ---
 
+### Oyibo
+[lucasaykroyd.com August 4, 2026](https://www.lucasaykroyd.com/2026-irene-adler-prize)
 
+"The spicy obe stew is sumptuous, the juju music and palm wine are bubbly, and the talking drums are heart-throbbing."
+
+---
 ### I Knew Parkinson's Disease Would Change Our Lives But It Was Harder Than I Expected
 [The Globe & Mail First Person September 25, 2025](https://www.theglobeandmail.com/gift/1c2d8aa22e9bc917e990aa6f7c16c36010d4c9eda5bf39a5e91e6d80741fef70/7RPYFMEDKJDZBLL4XJ57MUU5I4/)
 
