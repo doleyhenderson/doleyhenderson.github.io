@@ -9,7 +9,7 @@ My writing is published in Canadian and U.S. literary journals and anthologies, 
 
 ---
 
-###Selkie Sisters
+### Selkie Sisters
 [The Missing Slate Magazine. Boxes in the Attic: Issue 21 Summer 2026](https://themissingslate.com/issue-21-boxes-in-the-attic/)
 
 "Meanwhile, how will my selkie-sister save me now? She drifts by, swishing her tail back and forth and swinging her tresses over her gorgeous shoulders. She swirls and twirls, zips and dips. And disappears."
