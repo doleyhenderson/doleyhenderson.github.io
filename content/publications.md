@@ -2,6 +2,12 @@
 title: "Publications"
 ---
 
+### Selkie Sisters
+[The Missing Slate Magazine. Boxes in the Attic: Issue 21](https://themissingslate.com/issue-21-boxes-in-the-attic/)
+
+"Water fizzes up my nose and sloshes in my mouth. I somersault twice, my wet suit firmly zipped to my body, head to toe. Will the current hurl me downstream to crocodiles waiting to snap and crunch me?"
+
+---
 ### Oyibo
 [2026 Irene Adler Prize August 4, 2026](https://www.lucasaykroyd.com/2026-irene-adler-prize)
 [Press Release August 4, 2026](https://www.einpresswire.com/article/925837295/2026-irene-adler-prize-awarded-to-doley-henderson)
