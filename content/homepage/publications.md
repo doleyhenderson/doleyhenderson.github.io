@@ -9,6 +9,13 @@ My writing is published in Canadian and U.S. literary journals and anthologies, 
 
 ---
 
+###Selkie Sisters
+[The Missing Slate Magazine. Boxes in the Attic: Issue 21 Summer 2026](https://themissingslate.com/issue-21-boxes-in-the-attic/)
+
+"Meanwhile, how will my selkie-sister save me now? She drifts by, swishing her tail back and forth and swinging her tresses over her gorgeous shoulders. She swirls and twirls, zips and dips. And disappears."
+
+---
+
 ### Oyibo
 [2026 Irene Adler Prize August 4, 2026](https://www.lucasaykroyd.com/2026-irene-adler-prize)
 [Press Release August 4, 2026](https://www.einpresswire.com/article/925837295/2026-irene-adler-prize-awarded-to-doley-henderson)
@@ -16,6 +23,7 @@ My writing is published in Canadian and U.S. literary journals and anthologies, 
 "The spicy obe stew is sumptuous, the juju music and palm wine are bubbly, and the talking drums are heart-throbbing."
 
 ---
+
 ### I Knew Parkinson's Disease Would Change Our Lives But It Was Harder Than I Expected
 [The Globe & Mail First Person September 25, 2025](https://www.theglobeandmail.com/gift/1c2d8aa22e9bc917e990aa6f7c16c36010d4c9eda5bf39a5e91e6d80741fef70/7RPYFMEDKJDZBLL4XJ57MUU5I4/)
 
@@ -29,9 +37,3 @@ My writing is published in Canadian and U.S. literary journals and anthologies, 
 "I slip on my low-back, sparkly dress and practise my power stance in front of the mirror. Then I
 twirl and twirl, watching my scar wink and disappear, wink and disappear."
 
----
-
-### The Elements
-[Roots to Branches volume 1, Federation of British Columbia Writers anthology, November 19, 2023](https://bcwriters.ca) 
-
-"Suddenly, we are crushed from behind, spun sideways. In slow-motion, I spiral into the blue and rush of wind. My eyelids slam shut, like those of a doll, as I hit pavement." 
