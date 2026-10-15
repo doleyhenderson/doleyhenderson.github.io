@@ -2,6 +2,13 @@
 title: "Publications"
 ---
 
+### Silky Souls
+[Hooded: Memoir Fall 2026](https://www.amazon.co.uk/dp/B0HLLZSNQ6)
+
+"I rise on my toes, reach my arms overhead, arc over the cliff and dive."
+
+---
+
 ### Selkie Sisters
 [The Missing Slate Magazine. Boxes in the Attic: Issue 21 Summer 2026](https://themissingslate.com/issue-21-boxes-in-the-attic/)
 
