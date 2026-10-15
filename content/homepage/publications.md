@@ -9,6 +9,15 @@ My writing is published in Canadian and U.S. literary journals and anthologies, 
 
 ---
 
+
+---
+###Silky Souls
+[Hooded Memoir ebook: Crowvus Fall 2026](https://www.amazon.co.uk/dp/B0HLLZSNQ6)
+
+"We putt-putt to a stop at the northernmost tip of New Zealand, as our motorcycle coughs its last breath and dies."
+
+---
+
 ### Selkie Sisters
 [The Missing Slate Magazine. Boxes in the Attic: Issue 21 Summer 2026](https://themissingslate.com/issue-21-boxes-in-the-attic/)
 
